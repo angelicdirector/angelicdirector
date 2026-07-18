@@ -1,16 +1,14 @@
-## Hi there 👋
+## nyanyaa
 
-<!--
-**angelicdirector/angelicdirector** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+                    Alan   ᵒʳ    Heartburn    . .
+                Nicknames are ok !! 
+ any / mirrors prns   .    ‎ ‎(:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅)         
+                𓏵        refers to self occasionally with plural pronouns . 
+int ok (unless specified, indicated on discord or on pt pony)  , iwc 
+want more info ? feel free to ask !
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+SIGN MY ATA NOWWWWW  !!! 
+
+
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/d94450f7-42c1-4084-a642-70647eccdb66" />
